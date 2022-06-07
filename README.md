@@ -1,1 +1,1 @@
-## Copié/collé du repo de Boris Gilles....mais en version buguée(pffff)
+## Copié/collé du repo de Boris Gilles....mais en version buguée (pffff, génial)
